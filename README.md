@@ -20,4 +20,4 @@
 
 本站不储存任何视频，仅提供来自公开网络的资源整合与跳转服务，所有内容均符合合规标准。欢迎收藏本页，作为你的日本AV免费资源站首选入口，每日更新，永久免费，纯净体验，从这里开始。
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/dd54045/50454 ）</span>
